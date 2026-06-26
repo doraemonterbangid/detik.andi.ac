@@ -1,0 +1,1 @@
+# detik.andi.ac
